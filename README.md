@@ -1,0 +1,1 @@
+# Methodology-of-formation-of-the-register-of-regional-communities-of-the-Vkontakte-social-network
